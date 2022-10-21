@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @toniiplaycode
-- 👀 I’m interested in technology, life skill, improve yourself
+- 👀 I’m interested in Technology, Life Skill, Improve Yourself
 - 🌱 I’m currently learning WEB developer
 - 📫 How to reach me:
 - Email: toan13022017@gmail.com
