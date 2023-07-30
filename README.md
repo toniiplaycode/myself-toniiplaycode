@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @toniiplaycode
 - 👀 I’m interested in Technology, Life Skill, Improve Yourself, Lifestyle
 - 🌱 I’m currently learning WEB developer
-- 📫 How to reach me:
+- 📫 How to contact me:
 - Email: toan13022017@gmail.com
 - Facebook: https://www.facebook.com/tonii.playps4
 - Intagram: https://www.instagram.com/tonii.playps4
